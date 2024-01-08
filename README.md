@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Lexus-Banton
 - 👀 I’m interested in Anime, Games, Code, Cosplay, and more!
-- 🌱 I’m currently looking for work. So More projects to come!
+- 🌱 I’m currently enrolled in Delaware Tech. So More projects to come!
 - 💞️ I’m looking to collaborate on fun projects and things that can be useful to others!
 - 📫 How to reach me lexcancode@gmail.com or my Twitter link in Bio!
 
